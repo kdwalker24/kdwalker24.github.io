@@ -1,1 +1,1 @@
-# programming newbie
+# Kathryne Walker
